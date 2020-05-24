@@ -1,1 +1,0 @@
-# selcan kebelioğlu
